@@ -6,7 +6,7 @@
 >
 > With this plan, your **total training time per week** is about **2–2.5 hours**, making it very beginner-friendly and easy to stay consistent.
 >
-> 👉 Whether you're just starting your fitness journey or getting back into it, this plan provides a solid foundation for full-body health and strength.
+> Whether you're just starting your fitness journey or getting back into it, this plan provides a solid foundation for full-body health and strength.
 
 ## 📑 Table of Contents
 
